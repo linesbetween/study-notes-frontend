@@ -1,0 +1,1 @@
+![ASCII-Table-wide](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1b/ASCII-Table-wide.svg/875px-ASCII-Table-wide.svg.png)

@@ -1,0 +1,1 @@
+compare wrong and right sultion
